@@ -233,4 +233,4 @@ Monster Hunter Wilds is offered as a full free version, including all features a
 Dive into the world of Monster Hunter Wilds today! Download now and embark on your ultimate hunting adventure!
 
 ---
-**Last updated:** 2026-10-27 07:16:16 UTC
+**Last updated:** 2026-10-27 13:56:12 UTC
